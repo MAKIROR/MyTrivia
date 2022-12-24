@@ -22,3 +22,9 @@
 + Makiror在学校无聊时总是拔手臂上的汗毛。
 + Makiror成绩最好的科目并不是他最喜欢的。
 + 小学时的喵喵喜欢画画做手工，梦想是做一个漫画家。
++ Makiror喝咖啡喜欢加奶不加糖，但是黑咖啡也可以
++ Makiror无法接受Golang和Python
++ 尽管去过很多国家，但Makiror英文水平仍然堪忧
++ Makiror冬天在家会穿Unity外套配一条很土的黄色睡裤
++ Makiror最喜欢橘色的猫咪
++ Makiror只使用鼠标在PhotoShop画画
