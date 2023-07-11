@@ -50,3 +50,4 @@
 + Makiror特别特别害怕虫子
 + Makiror和Android手办总是有奇怪的缘分
 + Makiror在セブン-イレブン转角遇到爱
++ Makiror在PH的小破酒店仍坚持写Blog
